@@ -1,3 +1,4 @@
+![anh-bt11th10](https://github.com/user-attachments/assets/cfcc75db-fa87-4a23-8efd-6874306927c5)
 ![bt8th10](https://github.com/user-attachments/assets/a0d9a211-3f2b-4f18-9dfc-c1e50efdc67c)
 ![bt-2th10](https://github.com/user-attachments/assets/350aba80-dcc0-4ea9-a414-9cafac7f52b6)
 ![ảnh Bt 28th9](https://github.com/user-attachments/assets/2781e447-e9ee-43d2-b64e-714c57c186d9)
